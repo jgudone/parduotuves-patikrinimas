@@ -1,0 +1,1 @@
+# parduotuves-patikrinimas
